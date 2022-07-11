@@ -5,4 +5,4 @@ Note: Use this just for Reference and study, okay..
 
 Support me by click on stars and follow me if this is usefull for you.
 
-Thanks, Byyy
+Thanks
